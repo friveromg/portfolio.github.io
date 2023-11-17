@@ -1,4 +1,4 @@
-# Científico de Datos | Analilsta de Datos
+# Científico de Datos | Analista de Datos
 
 ### Experiencia laboral
 - Empresa 1
